@@ -1,2 +1,1 @@
 # simranferwani.io
-# simranferwani.io
